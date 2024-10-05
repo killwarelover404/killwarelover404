@@ -1,2 +1,3 @@
-![](https://cdn.discordapp.com/attachments/1139842682475249714/1292101448997273600/Untitled493_20241001130238.png?ex=670282bf&is=6701313f&hm=62f6f494d42e9c1ed28ed085c4149f6d75d2794ae7e1e33f51c9948547ae4e53&)
-art by me
+![](https://cdn.discordapp.com/attachments/1139842682475249714/1292101943199797299/1000.png?ex=67028335&is=670131b5&hm=df96291847900f134747e7ffccf470598fc6e920a849394a7f8195d9f02a400a&)
+![](https://64.media.tumblr.com/56dc21f02dacf65d607d3db8d311636d/ad9df823c77e20b0-6e/s1280x1920/b53a10c03acc374e6f12200c0e645d1f9cece9b2.pnj)
+divider by [bunnysrph](https://www.tumblr.com/bunnysrph) on tumblr !!
