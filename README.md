@@ -1,1 +1,2 @@
-![](https://i.postimg.cc/Y0ZyN1L6/Untitled611-20250226201341.png)
+![](https://i.postimg.cc/3xRpdRWK/Untitled262-20250301191828.png)
+doodle of the day
