@@ -1,3 +1,2 @@
-![](https://i.postimg.cc/TYvCrxg8/i-wanna-test-the-demon-core-20250303132224.png)
-![](https://i.postimg.cc/W128H75X/Untitled243-20250303162651.png) 
-i got TWO! this time!!!,! hope you like it, smiley face
+![](https://i.postimg.cc/rFHTRnn3/Untitled614-20250303180255.png) 
+aawwwwww awww hes so. awwww so cute
