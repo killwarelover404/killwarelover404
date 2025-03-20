@@ -1,5 +1,1 @@
-![](https://i.postimg.cc/2y0ftf7S/Untitled232-20250306172022.png)
-
-![](https://64.media.tumblr.com/df46f281553fbd91f9c9af4ae4d38b50/1401af7bb0bc9e44-06/s250x400/95d107852a08ec98a61deb9ee47bc1db63a28edb.gifv) ![](https://i.postimg.cc/XvgFDGdt/ezgif-com-resize.webp) ![](https://64.media.tumblr.com/70b15cf3241468499ffa989ee3f480aa/10ee4c40b4d26726-54/s100x200/1a4bfee5259379461152b13c76951b2ecc9a3515.gifv) ![](https://64.media.tumblr.com/16921a3c432a1226f71ed2eabb8218b3/0c88fac5502dfd6c-41/s100x200/8228d68156df0f1fad2e50ea7d7c9e559839bb2c.gifv) ![](https://64.media.tumblr.com/fa75183abec55513e7d215a201c94b2d/a84c06792e91fde2-bb/s100x200/f751a149cb9fd8c1b95bf0b7dcd6f70286402782.webp) ![](https://64.media.tumblr.com/dee528dddc8f595f25a00c74cec9935f/884eea48d188fc7b-f2/s100x200/5dc3517168ebc4f0e7779be1fb8c2d0508d09a9f.pnj)
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2300&pause=500&color=0CC9F7&random=true&width=435&lines=hey+its+mee!!;i+should+practice+my+laugh;see+who+wants+to+give+donations!;im+still+waiting+on+that+dono%2C+BUDDY)](https://git.io/typing-svg)
+REDECORATING GITHUB!!! plz b patient
