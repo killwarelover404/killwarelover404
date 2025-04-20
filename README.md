@@ -3,3 +3,4 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&style=plastic-square&label=VISITORS&abbreviated=true&color=yellowgreen)
 
 [atabook](https://anomaly0010.atabook.org/) 
+[strawpage](foolsday.straw.page) 
