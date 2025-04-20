@@ -1,9 +1,1 @@
-REDECORATING GITHUB!!! plz b patient
-
-
-
-
-
-im slenderman find my pafges
-
-![](https://i.postimg.cc/RhDFKptT/find-my-pages.webp)
+![](https://i.postimg.cc/PqhjrLr4/Untitled653-20250420135652.png) 
