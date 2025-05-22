@@ -1,3 +1,5 @@
-remaking github in progress
-
-![](https://i.postimg.cc/L8r5mQ60/MY-GUBBY-IS-BETTER-THAN-YOURS.png)
+![](https://i.postimg.cc/YqQx03nj/Untitled621-20250522092845.png) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Ancizar+Serif&size=30&duration=4500&pause=800&color=F7F7F7&center=true&width=525&lines=I+WILL+MAKE+THEM+SEE+THE+TRUTH)](https://git.io/typing-svg)
+![](https://i.postimg.cc/2S4XpmRc/Untitled621-20250522095802.png) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31poogvrqn3efrvp5ppe3kaump6q&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=ababab&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![](https://i.postimg.cc/vZMtVVkh/Untitled621-20250522092901.png) 
